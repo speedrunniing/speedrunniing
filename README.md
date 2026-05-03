@@ -2,9 +2,8 @@
 
 ──────────────────────────────
 
-dni wilbur soot dni proshippers
+idc if ur wss just iwc ok? u can int with me idc
 
-dni dni dni idc idc im a proud hater of u gusy
 
 dream is a comfort to me,
 
